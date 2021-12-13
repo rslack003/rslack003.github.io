@@ -7,7 +7,7 @@ My goal is to impart knowledge that may help you along your journey.
 
 ### <a name="question_1"></a> **Why am I here?** 
 
-### <div align="right">_Act upon your curiosity_  
+### _Act upon your curiosity_  
 
 Imagine for a moment that any and every requirement you have for your ideal life has been met. All requirements, both existing and all potential future requirements, will be met for as long as you desired.  
 _What would your life be like?_  
