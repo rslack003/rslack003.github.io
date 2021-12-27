@@ -1,5 +1,7 @@
 # A User's Guide to this Reality
 
+_This message is intended for anyone hosting a voice of curiosity. The knowledge shared can be one of many effective tools on your journey but it will only be effective in hands that are willing to execute change. You will work out your own salvation. Please proceed when you accept this contract._
+
 ## <a name="introduction"></a> Introduction 
 
 Hello friend. Let me take a moment to assure you that _Everything is Fine_. There are many uncertainties, but know that you are an important part of an ongoing process. Your existence is welcomed and cherished. My goal is to impart knowledge that may help you along your journey. 
