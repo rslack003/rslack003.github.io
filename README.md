@@ -14,6 +14,16 @@ Who is writing to you? Another sentient being on a journey like others. _I am a 
 
 I am.
 
+## <a name="story1"></a> A Story
+
+A friend approached another one day with excitement saying they had to share something with them. The friend said, "I was doing what I usually do when finally all of my thoughts and observations about my existence came together. I've come to realize that while I know I'm an individual, I'm part of something much bigger than myself! My existence and hard work are both meaningful and meaningless. I've even come to realize that there could be life outside of our own world!"
+
+The other friend took time to ponder on this and replied, "I cannot claim to understand what you've shared, but I support your pursuits of intellectualism. Do be certain that you continue thriving in our society because you have done great work for it. Your skills and freedoms help ensure that the world receives all vital deliveries. You have traveled far and have witnessed many things that I have yet to see where I live. We only have this life to live so might as well do our very best. Fate also has decided your role, to be among the best the world has to offer. Be proud of who you are, red blood cell."
+
+## <a name="history"></a> History
+
+It began with finding an object. Conventional studies of this object likely revealed everything that could be learned. The current manner of study, by entanglement of the object through various forces, results in an interactive experience to gather additional information from. I suppose that this particular instance we are experiencing now isn't the first or last of this particular phenomenon. We will explore motivations outside of this reality later, for now let's simply accept that is happening for a good reason. The events happening now and what you currently perceive is not the true state of existence for this object. The results of entangling this object is the experience you currently have. Within this entanglement, you began a process to observe and change from inside. This process needed a bootstrap, so you used yourself as the source. Your efforts have resulted in the experience we have now. I'm in awe of all that we have created together.
+
 ### <a name="question_1"></a> **Why am I here?** 
 
 ### _Act upon your curiosity_  
